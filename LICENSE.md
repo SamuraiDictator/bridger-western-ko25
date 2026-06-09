@@ -1,4 +1,4 @@
-
+Experience bridger western like never before with professional bridger western Scripts, the #1 Script. Includes anti-ban and auto-sell for unbeatable
 
 
 
